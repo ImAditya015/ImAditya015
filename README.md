@@ -1,5 +1,5 @@
 # 💫 About Me:
-💫About Me:<br><br>Hi, there👋<br>I'm Aditya Singh Chauhan<br><br>🔭 I'm passionate about VLSI, RTL design/verification and embedded systems<br>💭Ask me about digital electronics and vlsi design related stuff<br>📫How to reach me: Instagram- @imaditya_015, LinkedIn- @aditya-singh-chauhan922338284<br>😊 Pronouns: He/His<br>💡 Fun Fact: You might find me discussing F1 or cricket, if i'm not lost in my work.<br>
+Hi, there👋<br>I'm Aditya Singh Chauhan<br><br>🔭 I'm passionate about VLSI, RTL design/verification and embedded systems<br>💭Ask me about digital electronics and vlsi design related stuff<br>📫How to reach me: Instagram- @imaditya_015, LinkedIn- @aditya-singh-chauhan922338284<br>😊 Pronouns: He/His<br>💡 Fun Fact: You might find me discussing F1 or cricket, if i'm not lost in my work.<br>
 
 
 ## 🌐 Socials:
